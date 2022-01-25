@@ -1,4 +1,4 @@
-🌿 GOD
+♕︎ 𝐆𝐎𝐃
       
         The Bible explains that God created 
         everything including us. He has the 
